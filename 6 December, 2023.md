@@ -1,0 +1,14 @@
+Let me continue my story. In the morning, I woke up late as the first day at 10.10. Although I wanted to sleep more, I still got up since I have many things to do. The bank account is the most pressing issue, you know, without it, it is difficult to transfer money from China, and it is not safe to keep a bunch of cash. I quickly put on my clothes and went out. It was a day when I could take buses since bus ticket has been an item in my backpack. I walked to the 8th bus stop, waiting. When the bus arrived, I stepped on the bus, but didn't know how to use the bus ticket. The Indian driver smiled to teach me swipe the card, and I smiled back to him, full of gratitude. I picked a seat at the back of the bus. There were some Indian young people sitting against me, with head packs, Canada is a multicultural country. I got off the bus at the station where Royal Bank is there.
+I walked into the house of the Royal Bank, standing at the door and wishing someone could ask me what to do. Luckily, after a short moment, a woman like the manager asked me what to do. I told her I wanted to open a bank account, and she let my wait in the line. A white woman received me, and after listening to my request, she checked my passport and visa, telling me that my passport was ok, but I need a student permit or work permit, that was a must-have item. It was so frustrating, I went out. Then I tried CIBC, getting the same response. (By the way, opening an account needs to make an appointment in CIBC.) I had no idea but went back home. Questions came soon, which direction is to go home because the bus stop has no sign of what is the name of the stop, and what is the destination. I picked randomly, but it was the wrong answer, so I had to get off after I realize that it was the wrong direction. My feet are the most reliable transport, I walked back and got on a bus at the bus stop.
+
+It was 2pm when I got home. My roommate was having lunch. I was so frustrated and wanted to speak to someone, so I chatted with him for about 30 mins, complaining something. Then I went back my room, having no appetite to eat something.
+
+It seems to be not a good omen. I texted to my agent, telling her about these messages. She told me a visitor can open a bank account in Vancouver. I thought it was maybe necessary to fly to Vancouver. In the afternoon, I stayed in my room, researching the transport system, trains, planes, etc. Frankly, I wanted to go to Vancouver by train, but It seems impossible.
+
+Anyway, the day is over. I have to convince myself to be more patient.
+
+I start to miss my family.
+
+Tomorrow, I will prepare my CS resume. I plan to apply some jobs here, since I actually have mastered the skill. Maybe I could receive a work permit, or at the least, I have chances to practice my English.
+
+--To be continued. Writing in my room in Kelowna.
