@@ -5,5 +5,6 @@ Sometimes, I think I am an opportunist, although I throw away all opportunities 
 God bless me. The current stage task is to overcome the language barrier. I found the listening skill have improved a lot since I arrived at Canada, although I had not much chance to practice it. I will persist in writing diaries to improve my writing and thinking skills. The only skill I have not arranged to hone is speaking, and I have little time to talk to the shop clerk.
 
 By the way, I woke up early at 7.30. It is a good sign since it indicate that I come to get used to the time zone of Canada.
+
 The day is ending.
 ---- To be continued.
